@@ -1,4 +1,4 @@
-Hi [Sathvika Batteries & Power Solutions]
+HI!
 
 I recently came across Sathvika Batteries & Power Solutions. As an established dealer in Kundrathur, you provide uninterrupted power to your clients—and I believe your website should perform the exact same way.
 
@@ -26,9 +26,9 @@ Conversion Tools: A floating WhatsApp button and clear "Get Quote" calls-to-acti
 Source Code Handover: You own the code 100%.
 
 Timeline & Pricing:
-If you like the attached design direction, I can complete the full website (including your product list, testimonials, and a contact form) within [Insert Timeline, e.g., 3-5 days].
+If you like the attached design direction, I can complete the full website (including your product list, testimonials, and a contact form) within 3-5 days.
 
-My flat rate for this custom, high-performance build is [Insert Your Price, e.g., $150 / ₹12,000].
+My flat rate for this custom, high-performance build is {10$/900₹ Per Hour}.
 
 I have attached a link to the live demo of your draft. Let me know if you would like to move forward and get this launched!
 
